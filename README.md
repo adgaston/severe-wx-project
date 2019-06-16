@@ -8,7 +8,7 @@ All maps/charts are viewable via OneDrive here: [MapsCharts](https://1drv.ms/p/s
 
 Previews of maps/charts also featured below.
 
-Please reach out to me at adgaston8@gmail.com or @mcshortstack on Twitter.com if you wish to discuss more!
+Please reach out to me at adgaston8@gmail.com or [@mcshortstack](https://twitter.com/mcshortstack) on Twitter.com if you wish to discuss more!
 
 ![Image1](/Images/ScreenShots/Image1.png)
 
